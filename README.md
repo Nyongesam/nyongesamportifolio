@@ -1,1 +1,1 @@
-This is my poortifilio page shjowing case of my expert in different tech fields 
+This is my portifilio page showing case of my expert in different tech fields 
